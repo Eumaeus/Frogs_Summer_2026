@@ -18,13 +18,13 @@ Actors were serious about their skill and presentation. Their rigor included act
 
 Side note: be sure to take into account "the stage" and differences in the area of performing.
  
-[^1]: DF of A, p. 126.
-[^2]: DF of A, pp. 135-137
-[^3]: DF of A, p. 149
-[^4]: DF of A, p. 152-153
-[^5]: DF of A, p. 155
-[^6]: DF of A, p. 158
-[^9]: DF of A, pp. 170-171
+[^1]: DFA, p. 126.
+[^2]: DFA, pp. 135-137
+[^3]: DFA, p. 149
+[^4]: DFA, p. 152-153
+[^5]: DFA, p. 155
+[^6]: DFA, p. 158
+[^9]: DFA, pp. 170-171
 
 ## Costumes/Masks
 
@@ -32,22 +32,22 @@ There is no written evidence of how costumes or masks were employed until Julius
 
 Archaeological evidence of costumes in comedy shows portrayal of animal choruses in the 6th century. [^13] Review figures!!! [^14] "It is clear from the literary evidence that Old Comedy enjoyed complete freedom in the production of masks to suit its characters." Clear evidence to masks that "burlesqued" of living people with "a degree of caricature." Very likely the chorus in *Frogs* wore frog-like masks. Also consider general distinctions made popular by comedy such as masks for "old man", "slave", "young woman", etc. [^15] What could be considered as the normal costume for Old and Middle Comedy is tights and phallos nd short chiton. [^16]
 
-Clothing is evidenced to have been distinct to regularly played parts in plays: Old men wear a himation, and carry a crooked staff, younger men wear a scarlet garment (φοινικἱς)  or a purple himation, rustics have a wallet, a stick, and a skin, normal young men wear red clothing, parasites wear black or grey, slaves wear a short white himation, old women wear green or light blue, priestesses wear white, mothers have a scarlet band round their heads, young women wear white or linen, heiresses wear white with fringes. "Costumes and tect could could go hand in hand in the essential task of communication, of telling the audience what it needed to know." Old Comedy utilized visual jokes and soectacle. [^17]
+Clothing is evidenced to have been distinct to regularly played parts in plays: Old men wear a himation, and carry a crooked staff, younger men wear a scarlet garment (φοινικἱς)  or a purple himation, rustics have a wallet, a stick, and a skin, normal young men wear red clothing, parasites wear black or grey, slaves wear a short white himation, old women wear green or light blue, priestesses wear white, mothers have a scarlet band round their heads, young women wear white or linen, heiresses wear white with fringes. "Costumes and tect could could go hand in hand in the essential task of communication, of telling the audience what it needed to know." Old Comedy utilized visual jokes and spectacle. [^17]
 
-[^10]: DF of A, p. 179.
-[^11]: DF of A, pp. 186-191 (specifically pictures of artifacts).
-[^13]: DF of A, p. 210.
-[^14]: DF of A, pp. 214-215 (specifically pictures of artifacts).
-[^15]: DF of A, p. 218-220.
-[^16]: DF of A, p. 222.
-[^17]: DF of A, p.230-231
+[^10]: DFA, p. 179.
+[^11]: DFA, pp. 186-191 (specifically pictures of artifacts).
+[^13]: DFA, p. 210.
+[^14]: DFA, pp. 214-215 (specifically pictures of artifacts).
+[^15]: DFA, p. 218-220.
+[^16]: DFA, p. 222.
+[^17]: DFA, p.230-231
 
 ### Herakles and Dionysus Distinctions
 
 Dionysus wear the *κροκωτὀς* (saffron-coloured) robe in A's *Frogs*. [^12] Cuffed boots could have been "peculiarly characteristic of Dionysus and may have been adopted to the stage "in his honour" since "decorated laced boots are particularly Dionysiac." Dionysus was described or is on objects wearing boots and there is a well- established connection to the type of boot, *κὁθορνος*. "Femininity is clearly characteristic of the *κὁθορνος* in Aristophanes. Vase painters acknowledge Dionysus wore effeminate boots. [^13]
 
-[^12]: DF of A, p. 203
-[^13]: DF of A, pp. 206-208.
+[^12]: DFA, p. 203
+[^13]: DFA, pp. 206-208.
 
 ## Chorus/Music
 
@@ -57,5 +57,5 @@ The flute player
 
 Muse of Euripides has castanets in *Frogs* [^8]
 
-[^7]: DF of A, pp. 165
-[^8]: DF of A, pp. 167
+[^7]: DFA, pp. 165
+[^8]: DFA, pp. 167
