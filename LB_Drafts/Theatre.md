@@ -1,10 +1,6 @@
 # Athenian Theater in the 5th Century BCE
 
-<<<<<<< HEAD
 (Important distinctions between comedy and tradegy relevent to the *Frogs* and A's plays. Also, note that Old, Middle, and New Comedy are terms for classification and were not used to describe A's comedies during his era. A is supposedly to have effected the changes in comedy even though *Frogs* is classified as Old Comedy.)
-=======
-(Important distinctions between comedy and tradegy relevent to the *Frogs* and A's plays. Also, note that Old, Middle, and New Comedy are terms for classification and were not used to describe A's comedies during his era. A is supposedly to have effected the changes in comedy even though *Frogs* is classifed as Old Comedy.)
->>>>>>> 4ef709d (Enhance Theatre.md with additional details on actors, costumes, and music in Athenian theater, including distinctions in performance and character representation.)
 
 ## The Lenaia
 
