@@ -19,6 +19,8 @@ Historically speaking, *Frogs* was first performed in 405 BCE. The Athenians had
 
 Politically, Attica was in the middle of a fued between the democratic and oligarchical parties. Political privileges were revoked and the debate about ending the war was a hot topic heightening their economic troubles causing polarization and strife within their heirarchal system. Optimism was low among the population due to the war and its ramifications painting politicians in poor standing. [^7]: Aristophanes. *Frogs.* xvi. 
 
+Slavery and manumission to win the war and bringing persons into your state. Mecenary
+
 **Type in Greek**
 
 διαρραγεἱης; ἥδε δ᾽ αὖ κρώζει πάλιν. [^8]: Aristophanes. *Birds.* The Loeb Classical Library. 130.  
