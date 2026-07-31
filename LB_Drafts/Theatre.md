@@ -6,11 +6,21 @@
 
 ## The Actors
 
+**It's a start...** Technology, fashion, and fame are common to an actor, even an ancient Athenian actor. Proof of starving for the arts likely did not start in Greece but is evidenced in its literature. [^9] Artists will be artists regardless of time. Their careers are in keeping tragedies and comedies alive and people continue to love spectacles. 
+
+An actor manipulates an audience with gesture and speech bringing Aristophanes's *Frogs* to life and rewarding the playwright his relevant and relatable reputation. [^9] Three-four actors were required for comedic plays, one was generally the playwright Given that Aristophanes's talent as a comedic playwright required prime acting, he may have cast himself as Dionysus. Not just anyone could play Dionysus or Herakles, so was it Aristophanes himself or one of the talented among the troupes associated with the festivals of Athens and the Mediterranean.[^5]
+
+*Frogs* leaves few jokes undiscovered: sex, slavery, politics, battles are all open fodder for Aristophanes's play. The banter of Herakles and Dionysus depict that their brotherly love is undeniable, but strained. One can imagine the actors needed the right costume, the perfect mask, and the flamboyance to master the role of two complex characters. Then they have to keep it real (a good thing about mask...keeping a straight face...not a problem). Modern theater rarely uses masks and the phallus worn by actors of ancient comedies is mostly unheard of but that was the norm in the 5th Century BCE. [^11] 
+
+**Ignore!!! Just bs-ing!** Throw in over-indulgent actors, frogs croaking in the chorus, and Corpse wrapped in a nice package of traveling to the underworld to retrieve two great tragedians and, well, modern comedy at got shit on Aristophanes.
+
+
+
 Interestingly the term, ὑποκριτἠς, most commonly used to denote an actor first occurs in Aristophanes *Wasps* 1279 (422 B.C.). [^1] Tragedies generally had 2-3 actors including those of Euripides, Aeschylus, and Sophocles. Comedies had 3-4 actors. This does not include walk-on or mime roles or the chorus. More often than not, the poet/playwright is one of the actors (Similar ideal today with director cameos like Quentin Tarantino). Aside from a main character like Dionysus in Aristophanes *Frogs*, actors were employed to portray 2 or 3 roles within each play. [^2] 
 
 Important to note: "To judge ancient acting by the standards of modern and Western acting is a mistaken proceeding." [^3] 
 
-"Frogs could be played almost throughout by three actors: one taking the part of Dionysus, a second those of Xanthias and Aeschylus, and a third those of Herakles, Charon, Aiakos, the servant of Persephone, the Hostess, and Euripides; a fourth would be required for the very small parts (so far as spoken lines are concerned) of the Corpse, Plathane, and Pluton." Bare in mind comedies structure offered looser standards than the more composed and worthy tragedies. [^4] Actors had a certain amount of liberty in their roles. Actors are primarily male, few women where allowed to perform if at all. Generally there were troupes of performers for tragedy and comedy that frequented the festivals of Athens. Actors' guilds were a thing but not until the 3rd Century B.C. after Aristophanes comedies were originally performed. [^5] 
+"Frogs could be played almost throughout by three actors: one taking the part of Dionysus, a second those of Xanthias and Aeschylus, and a third those of Herakles, Charon, Aiakos, the servant of Persephone, the Hostess, and Euripides; a fourth would be required for the very small parts (so far as spoken lines are concerned) of the Corpse, Plathane, and Pluton." Bare in mind comedies structure offered looser standards than the more composed and worthy tragedies. [^4] Actors had a certain amount of liberty in their roles. Actors are primarily male, few women where allowed to perform if at all. Actors' guilds were a thing but not until the 3rd Century B.C. after Aristophanes comedies were originally performed. [^5] 
 
 Chorus lines in comedy could be singing or speaking, "Aristophanes himself describes the chorus as 'speaking'." [^6] 
 
